@@ -1,0 +1,2 @@
+# Killer-lib
+KILL ALL ADSNETWORK
